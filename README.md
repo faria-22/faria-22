@@ -6,4 +6,4 @@
 
 -My passion lies in learning and utilizing new technical tools to solve unique business problems.
 
--Interesting fact: I am a big fan of friends and the big bang theory.
+-Interesting fact: I am a big fan of Friends and The Big Bang Theory.
